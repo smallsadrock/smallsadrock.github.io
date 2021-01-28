@@ -1,1 +1,0 @@
-# smallsadrock.github.io
